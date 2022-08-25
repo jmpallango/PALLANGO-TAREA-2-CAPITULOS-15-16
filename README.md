@@ -27,7 +27,13 @@ Jueves 14 de julio de 2022
 
 Objetivo General:
 
+Aprender y desarrollar ejercicios en Circuitos RC y Circuitos RL utilizando los conocimientos aprendidos, logrando resolver los problemas planteados al final de cada capitulo.
+
 Objetivo Especifico:
+
+.Elaborar mapas mentales donde se explique los conceptos fundamentales de cada capítulo.
+.Analizar cada subtema por capítulo.
+.Desarrollar los problemas planteados al final del capítulo.
 
 # MARCO TEORICO:
 
