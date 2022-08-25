@@ -435,6 +435,12 @@ Es predominantemente inductivo ya que para que sea predominante resistivo, debe 
 
 # CONCLUSIONES:
 
+Utilizando los mapas mentales que contienen la información resumida facilita la busqueda de fórmulas y conceptos esenciales para los ejercicios propuestos.
+
+Comprender cada subtema permite entender que es lo que se debe realizar y el por que se realiza de aquella manera.
+
+En el desarrollo de ejercicios respecto a cada tema nos hace entender finalmente como funciona los circuitos en RC y RL.
+
 # BIBLIOGRAFÍA:
 
 Floyd, T. (2007). Principios de circuitos eléctricos. PEARSON Educación. https://drive.google.com/file/d/15UCq2JrPEKKB8SwajlmtTcE07nMiowaK/view
