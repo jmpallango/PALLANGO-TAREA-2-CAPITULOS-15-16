@@ -21,7 +21,7 @@ MGS. DARWIN OMAR ALULEMA FLORES
 
 Sangolquí- Ecuador
 
-Jueves 14 de julio de 2022
+Jueves 25 de agosto de 2022
 
 # OBJETIVOS:
 
