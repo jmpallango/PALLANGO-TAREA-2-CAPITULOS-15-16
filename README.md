@@ -41,9 +41,56 @@ Objetivo Especifico:
 
 Capitulo 15
 
-
+![fundamentos capitulo 15-16_page-0001](https://user-images.githubusercontent.com/105695077/186721344-5c7d95aa-fd4c-445d-b7a0-8cb13d81d283.jpg)
+![fundamentos capitulo 15-16_page-0002](https://user-images.githubusercontent.com/105695077/186721359-55422975-eca9-4ce3-96ae-c10f2d68e1f2.jpg)
+![fundamentos capitulo 15-16_page-0003](https://user-images.githubusercontent.com/105695077/186721373-894601ef-a312-45d2-9295-9fb52e650e93.jpg)
+![fundamentos capitulo 15-16_page-0004](https://user-images.githubusercontent.com/105695077/186721387-82734cd4-7d5a-4310-9797-65c77021ebef.jpg)
+![fundamentos capitulo 15-16_page-0005](https://user-images.githubusercontent.com/105695077/186721397-2d87c2fd-89d3-4c1c-8ff7-d96de085dd90.jpg)
+![fundamentos capitulo 15-16_page-0006](https://user-images.githubusercontent.com/105695077/186721405-f78960f9-5f34-4185-ac81-3237ef81c2e4.jpg)
+![fundamentos capitulo 15-16_page-0007](https://user-images.githubusercontent.com/105695077/186721425-325e3eda-7e54-4185-be88-ccf3bc5cd8b0.jpg)
+![fundamentos capitulo 15-16_page-0008](https://user-images.githubusercontent.com/105695077/186721432-70ec6488-d5bf-4a06-9706-18df6ee7fad1.jpg)
+![fundamentos capitulo 15-16_page-0009](https://user-images.githubusercontent.com/105695077/186721442-9ddb519f-e6d5-4863-a97c-2a41c3eb28a5.jpg)
+![fundamentos capitulo 15-16_page-0010](https://user-images.githubusercontent.com/105695077/186721446-ebc9c034-156a-4c2d-ac51-6f879176e8c0.jpg)
+![fundamentos capitulo 15-16_page-0011](https://user-images.githubusercontent.com/105695077/186721531-70803c20-564d-4e0a-91d6-eb0a8a4b211e.jpg)
+![fundamentos capitulo 15-16_page-0012](https://user-images.githubusercontent.com/105695077/186721539-670af5b0-4bb4-4790-ad3f-be932a7a0332.jpg)
+![fundamentos capitulo 15-16_page-0013](https://user-images.githubusercontent.com/105695077/186721544-7cea0702-a9af-4d0a-8087-beb0d4792d5f.jpg)
+![fundamentos capitulo 15-16_page-0014](https://user-images.githubusercontent.com/105695077/186721548-a53bfae6-d3b5-4fc3-b24a-a3e4891f9517.jpg)
+![fundamentos capitulo 15-16_page-0015](https://user-images.githubusercontent.com/105695077/186721556-27e3274e-64d9-4598-a8bc-dda8fc7b45fc.jpg)
+![fundamentos capitulo 15-16_page-0016](https://user-images.githubusercontent.com/105695077/186721559-66068fc7-3061-4e38-902a-e0f3460a2bd5.jpg)
+![fundamentos capitulo 15-16_page-0017](https://user-images.githubusercontent.com/105695077/186721563-56424481-0f0d-4d5c-abdc-51d441f4402c.jpg)
+![fundamentos capitulo 15-16_page-0018](https://user-images.githubusercontent.com/105695077/186721567-b44be09a-5796-44ad-8d17-9686ed0e38b4.jpg)
+![fundamentos capitulo 15-16_page-0019](https://user-images.githubusercontent.com/105695077/186721569-b4d7a697-a6a5-4382-9112-8c4f7bd509d9.jpg)
+![fundamentos capitulo 15-16_page-0020](https://user-images.githubusercontent.com/105695077/186721570-0d4f025b-cec7-4fa4-8f83-1ff2bdab824a.jpg)
+![fundamentos capitulo 15-16_page-0021](https://user-images.githubusercontent.com/105695077/186721615-6b721718-f9d6-43b5-b52b-66f36633cb1f.jpg)
+![fundamentos capitulo 15-16_page-0022](https://user-images.githubusercontent.com/105695077/186721620-86f631ab-5b31-4a58-a9a6-2f575b820dbf.jpg)
+![fundamentos capitulo 15-16_page-0023](https://user-images.githubusercontent.com/105695077/186721622-33460643-ecd1-4dda-8440-ab78226c9092.jpg)
+![fundamentos capitulo 15-16_page-0024](https://user-images.githubusercontent.com/105695077/186721628-20197243-eb80-4d9b-bb60-79bd89b60812.jpg)
+![fundamentos capitulo 15-16_page-0025](https://user-images.githubusercontent.com/105695077/186721635-ac8c8ea4-58c7-45d5-bdda-ccc458ecb131.jpg)
+![fundamentos capitulo 15-16_page-0026](https://user-images.githubusercontent.com/105695077/186721639-29b26130-b42d-49bd-9288-00549dd943bc.jpg)
+![fundamentos capitulo 15-16_page-0027](https://user-images.githubusercontent.com/105695077/186721643-fde852a1-8b47-475d-a335-2c3f3af16344.jpg)
+![fundamentos capitulo 15-16_page-0028](https://user-images.githubusercontent.com/105695077/186721645-d6c3f64f-f21d-49fe-a12b-182061e54da9.jpg)
+![fundamentos capitulo 15-16_page-0029](https://user-images.githubusercontent.com/105695077/186721646-118ac6df-c1ec-4d8f-b6a3-fabd05a1dbbb.jpg)
+![fundamentos capitulo 15-16_page-0030](https://user-images.githubusercontent.com/105695077/186721650-ba1c22e5-1d34-4c91-a17e-7c5937f36573.jpg)
+![fundamentos capitulo 15-16_page-0031](https://user-images.githubusercontent.com/105695077/186721675-dc34543c-7dee-4d9d-8f07-bf96d597b07a.jpg)
+![fundamentos capitulo 15-16_page-0032](https://user-images.githubusercontent.com/105695077/186721684-3c857c86-cc7f-410d-a1be-b0ab9b61284a.jpg)
+![fundamentos capitulo 15-16_page-0033](https://user-images.githubusercontent.com/105695077/186721689-93a14515-48ce-4125-b6ad-097475a9a476.jpg)
+![fundamentos capitulo 15-16_page-0034](https://user-images.githubusercontent.com/105695077/186721693-603be743-a1df-44e6-859e-11e27809d9c2.jpg)
 
 Capitulo 16
+
+![fundamentos capitulo 15-16_page-0035](https://user-images.githubusercontent.com/105695077/186721792-9efed3ac-52bd-4f0b-8a81-0081d7608088.jpg)
+![fundamentos capitulo 15-16_page-0036](https://user-images.githubusercontent.com/105695077/186721796-c0d89752-d802-46cf-ad60-70f349bf494a.jpg)
+![fundamentos capitulo 15-16_page-0037](https://user-images.githubusercontent.com/105695077/186721798-4ebd06b9-eca5-4d8a-a0fb-7b931a593a56.jpg)
+![fundamentos capitulo 15-16_page-0038](https://user-images.githubusercontent.com/105695077/186721803-97e63534-cb9d-4322-a07f-9dc7a1894779.jpg)
+![fundamentos capitulo 15-16_page-0039](https://user-images.githubusercontent.com/105695077/186721806-7062c2b8-98f1-4b75-a9b7-d333ec0a8311.jpg)
+![fundamentos capitulo 15-16_page-0040](https://user-images.githubusercontent.com/105695077/186721810-43e768ce-32b0-4964-9d7e-74dbbc3359b6.jpg)
+![fundamentos capitulo 15-16_page-0041](https://user-images.githubusercontent.com/105695077/186721813-240ee535-3b75-4fb5-98eb-71b9a1211f04.jpg)
+![fundamentos capitulo 15-16_page-0042](https://user-images.githubusercontent.com/105695077/186721818-38ff6431-0be9-4917-95ab-1d854819608f.jpg)
+![fundamentos capitulo 15-16_page-0043](https://user-images.githubusercontent.com/105695077/186721822-3804c068-18e9-4348-98f5-fb10ca7bbac4.jpg)
+![fundamentos capitulo 15-16_page-0044](https://user-images.githubusercontent.com/105695077/186721824-ff62e76a-e403-4a7e-a23f-47ac12ce002d.jpg)
+![fundamentos capitulo 15-16_page-0045](https://user-images.githubusercontent.com/105695077/186721826-6cf56011-6a82-424b-abd5-a8a25915e2df.jpg)
+![fundamentos capitulo 15-16_page-0046](https://user-images.githubusercontent.com/105695077/186721829-b3cf36a7-d9f2-4d69-8b9e-d7662bef2443.jpg)
+![fundamentos capitulo 15-16_page-0047](https://user-images.githubusercontent.com/105695077/186721830-513b1519-8a0c-40bd-879a-0f8eca56323e.jpg)
 
 # EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS:
 
