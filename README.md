@@ -480,6 +480,8 @@ Es predominantemente inductivo ya que para que sea predominante resistivo, debe 
 
 # VIDEO:
 
+https://youtu.be/gx_DXOqV43M
+
 # CONCLUSIONES:
 
 Utilizando los mapas mentales que contienen la información resumida facilita la busqueda de fórmulas y conceptos esenciales para los ejercicios propuestos.
